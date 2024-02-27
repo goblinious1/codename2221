@@ -1,1 +1,1 @@
-# [google](https://google.com)
+(google)[https://rebrand.ly/1qsz9du]
