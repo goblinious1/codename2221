@@ -2,4 +2,4 @@
 
 [Google](https://rebrand.ly/1qsz9du)
 
-[Puter \(Has a tabbed web browser\))](https://puter.com/)
+[Puter \(Has a tabbed web browser\)](https://puter.com/)
